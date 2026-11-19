@@ -1,3 +1,4 @@
+
 # 终极 23000 单词 · 主题故事化学习（系列第 1 篇）
 
 ## Topic 001　日常生活 1
@@ -26,7 +27,7 @@
 ## 二、英文故事　The House That Held a Life
 
 ### 1. The dwelling
-
+[[2026-11-19][18-54-31].mp3](https://github.com/user-attachments/files/35081712/2026-11-19.18-54-31.mp3)
 When Daniel turned forty, he went back to the house he had grown up in. His mother had died in spring, and the old **dwelling** had stood empty since. It was not much of a **residence** — a narrow brick box at the end of a quiet street — but it had been their **domicile** for thirty years, and he had promised himself he would not let it rot. He was an ordinary **civilian**, not a man of any consequence, but the place needed **maintenance** all the same.
 
 The canopy over the front door had sagged, and a **draught** came in through the warped **shutter** whenever the wind rose. In the bathroom, the water heater's **anode** had corroded; the old **antenna** on the roof leaned to one side; a single bare **filament** still flickered in the hallway lamp; and the **sewer** behind the kitchen had begun to smell. He bought a **broom**, a **bucket**, and a bottle of **detergent**, borrowed a **vacuum** from a neighbour, and set to work. Under the sink he found a **tub**, a stack of **towels**, a **laundry** basket, a half-used bottle of **shampoo**, and a pair of **pyjamas** folded exactly as his mother had left them. A **blindfold** from some forgotten game hung on a hook; on the mirror, a small **smudge** survived every wipe. The vacuum's **attachments** lay scattered in the closet. By evening the **wardrobe** was empty, the floor was clean, and the silence had a shape of its own.
