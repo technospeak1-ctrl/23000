@@ -25,27 +25,27 @@
 
 ## 二、英文故事　The House That Held a Life
 
-### I. The dwelling
+### 1. The dwelling
 
 When Daniel turned forty, he went back to the house he had grown up in. His mother had died in spring, and the old **dwelling** had stood empty since. It was not much of a **residence** — a narrow brick box at the end of a quiet street — but it had been their **domicile** for thirty years, and he had promised himself he would not let it rot. He was an ordinary **civilian**, not a man of any consequence, but the place needed **maintenance** all the same.
 
 The canopy over the front door had sagged, and a **draught** came in through the warped **shutter** whenever the wind rose. In the bathroom, the water heater's **anode** had corroded; the old **antenna** on the roof leaned to one side; a single bare **filament** still flickered in the hallway lamp; and the **sewer** behind the kitchen had begun to smell. He bought a **broom**, a **bucket**, and a bottle of **detergent**, borrowed a **vacuum** from a neighbour, and set to work. Under the sink he found a **tub**, a stack of **towels**, a **laundry** basket, a half-used bottle of **shampoo**, and a pair of **pyjamas** folded exactly as his mother had left them. A **blindfold** from some forgotten game hung on a hook; on the mirror, a small **smudge** survived every wipe. The vacuum's **attachments** lay scattered in the closet. By evening the **wardrobe** was empty, the floor was clean, and the silence had a shape of its own.
 
-### II. The clan
+### 2. The clan
 
 Daniel had been the youngest of a large **clan**, and for years the house had echoed with **clamor**. His father — a civil engineer of some **eminence** in the town — had been the **breadwinner**, the one who got up before dawn and came home with dust on his boots. As an **adolescent**, Daniel had watched him from the stairs, half fascinated, half afraid. An **acquaintance** of the family, Mrs. Hale, still came by on Sundays; she had known them from the **origin**, and her **familiarity** with their history made her the only person he could talk to about it. When his father died, the **onus** of the family name fell on Daniel.
 
 He inherited not the business — that had long been sold — but a shoebox of papers: a birth certificate, an old **ID**, a faded **identification** card, and a lawyer's letter about an **inheritance** that turned out to be more **legacy** than money — a set of **charcoal** sketches, a **velvet** ribbon, a few cheap **trinkets** his mother had kept anyway. They were his **heritage** now, and where they came from mattered more than what they were worth. Years earlier, the family had **fostered** two nephews after a tragedy, and those boys still called the house home.
 
-### III. Making ends meet
+### 3. Making ends meet
 
 Money had never come easily to them. His father had known real **penury** as a young man and had clawed his way out on a small **loan**, repaying it inch by inch. He had insisted on **insuring** the house against fire and **insuring** himself against injury at work; "**insure** against the worst," he used to say, "and the rest takes care of itself." Every Friday he would **deposit** a few notes **in** the savings account — deposit them in the bank, patiently, the way one lays bricks. They lived on plain **sustenance**, and whatever **subsistence** they had came from that steady **supply** of wages: the family's **livelihood** depended on it. There were lean winters when they **subsisted** on little more than bread and **canned** soup, but his father never stopped; he **sustained** the household the way a pump sustains a well, and in time the business grew enough to **sustain growth** year after year. He had also taken out life **assurance** for the family, just in case.
 
-### IV. The daily rhythm
+### 4. The daily rhythm
 
 Daniel had inherited a temper, too. He was **assertive** to the point of arrogance, **picky** about how things were done, and — he hated to admit it — sometimes **contemptuous** of people slower or softer than himself. He would **squabble** with his brothers about petty matters, and his **gratuitous**, hurtful remarks **slipped** his mind almost as soon as he made them. Strong coffee **excited** his nerves; he knew it, and drank it anyway. Lunch left him drowsy, and he would **snooze after lunch** for twenty minutes, or take a proper **siesta** in the old armchair, falling **asleep** with the newspaper on his chest. On bad days he **sequestered** himself in the study, shutting out the whole household. Yet there were gentler habits: he **shaved his face** at the same mirror every morning, chose a **plain**, unhurried **lifestyle**, and in his later years came to cheer his grandchildren's victories **vicariously**, as if they were his own.
 
-### V. The odd things that remain
+### 5. The odd things that remain
 
 On the last evening, he opened the **encyclopedia** his mother had bought him when he was ten. Its pages still smelled of glue. Tucked inside was the **specification** sheet for the old heater, covered in his father's careful handwriting, and beside it a receipt for a **pendulum** clock that had long since stopped. The clock had been a **nuisance** when it struck the hour at night, but now he would have given anything to hear it. He thought of **combustion** — of how a small flame, given air, becomes a fire — and of how a life, given memory, becomes a story. He did not stay in the end; he sold the house to a young couple from the city. But somewhere in it, he liked to think, a new family was **residing**, and **dwelt** as happily as his own once had.
 
